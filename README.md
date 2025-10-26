@@ -145,7 +145,7 @@ Have you remixed or minted one of my pieces? I’d love to see it!
 
 - 📧 [Email me](mailto:reyhanehdaneshdoost@gmail.com)  
 - 💼 [Connect on LinkedIn](https://www.linkedin.com/in/reyhaneh-daneshdoost-730481160/)  
-- 🌐 My Gallery:** [editart.xyz/user/tz1RXsijmPeeF1kPyrhd8Hkm2RskJAeU3si5](https://editart.xyz/user/tz1RXsijmPeeF1kPyrhd8Hkm2RskJAeU3si5)
+- 🌐 [My Gallery](https://editart.xyz/user/tz1RXsijmPeeF1kPyrhd8Hkm2RskJAeU3si5)
 
 Let’s collaborate — artists, coders, collectors, all orbiting the same creative codebase. ⚡
 
